@@ -29,3 +29,7 @@ Food processor
 1. Add the water to the food processor on top of the flour mixture (with all the butter) you made during prep
 1. Mix that shit until it turns into dough (it might not feel like it will turn into dough. keep mixing)
 
+## Post-Pie Instructions
+
+1. After you put the pie together and put the top on: beat the egg and put it everywhere on the top of the pie
+1. Sprinkle the post-egg brown sugar everywhere
